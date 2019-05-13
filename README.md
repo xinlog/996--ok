@@ -2,7 +2,7 @@
 [订阅点击](http://bit.ly/2WhuUpz)
 
 最后更新2019-05-13  星期一
-### 如果你的电脑不能访问youtube，请先科学上网。
+### 如果不能访问youtube，请先科学上网。
 
 ### 部分视频集合
  [![pic](/image/hqdefaffult.jpg)](https://www.youtube.com/watch?v=lwQ3ANy0O5c) 

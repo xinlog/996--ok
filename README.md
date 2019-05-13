@@ -1,4 +1,4 @@
-##   [复杂的宇宙来源于简单规则的不断重复](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
+# [复杂的宇宙来源于简单规则的不断重复](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
 
 # 欢迎订阅我的频道[MikewuTV](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
 

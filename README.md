@@ -1,4 +1,4 @@
-## 复杂的宇宙来源于简单规则的不断重复
+##   复杂的宇宙来源于简单规则的不断重复
 ## 互联网时代是人做决策，机器7×24的干活！
 # 欢迎订阅我的频道[MikewuTV](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
 

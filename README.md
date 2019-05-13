@@ -1,5 +1,6 @@
+# 互联网时代是7×24
 # 欢迎订阅我的频道[MikewuTV](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
-[订阅点击](http://bit.ly/2WhuUpz)
+
 
 最后更新2019-05-13  星期一
 ### 如果不能访问youtube，请先科学上网。

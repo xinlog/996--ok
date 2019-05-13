@@ -1,4 +1,4 @@
-## 互联网时代是机器365×24的干活，不是人
+## 互联网时代是机器7×24的干活，不是人
 # 欢迎订阅我的频道[MikewuTV](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
 
 

@@ -5,8 +5,8 @@
 
 # [复杂的宇宙来源于简单规则的不断重复](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
 
-# 欢迎订阅我的频道[MikewuTV](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
-
+# 欢迎订阅我的第一频道[MikewuTV](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
+# 欢迎订阅我的第二频道[九哥田园](https://www.youtube.com/channel/UC5vM9xzs9U0e08GwRWXLi0g)
 
 最后更新2019-05-30  星期四
 ### 如果不能访问youtube，请先科学上网。

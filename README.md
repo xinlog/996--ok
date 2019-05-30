@@ -12,7 +12,11 @@
 ### 如果不能访问youtube，请先科学上网。
 
 ### 部分视频集合
- [![pic](/image/hqdefaffult.jpg)](https://www.youtube.com/watch?v=lwQ3ANy0O5c) 
+[![0530](/image/hqdefaffult0530.jpg)](https://www.youtube.com/watch?v=YqkasbrnWdU) 
+
+[![0528](/image/hqdefaffult0528.jpg)](https://www.youtube.com/watch?v=c6xGmKg-nVE) 
+
+[![pic](/image/hqdefaffult.jpg)](https://www.youtube.com/watch?v=lwQ3ANy0O5c) 
 
  [![996结局](image/6a7067.jpeg)](https://www.youtube.com/embed/NuP_iOCEocg) 
 

@@ -8,7 +8,7 @@
 # 欢迎订阅我的频道[MikewuTV](https://www.youtube.com/channel/UCuTeTj6YJOC8LfX3ggCwV1Q)
 
 
-最后更新2019-05-13  星期一
+最后更新2019-05-30  星期四
 ### 如果不能访问youtube，请先科学上网。
 
 ### 部分视频集合
@@ -25,11 +25,6 @@
 [![sanhu](/image/hqdefddfault.jpg)](https://www.youtube.com/watch?v=5w3pJvSk7Ek)
 
 [![sanhu](/image/gushihult.jpg)](https://www.youtube.com/watch?v=Qi32LRFolew)
-
-
-
-
-
 
 
 [![sanhu](/image/hqdefault2.jpg)](https://www.youtube.com/watch?v=OpO43MLHu1E)
